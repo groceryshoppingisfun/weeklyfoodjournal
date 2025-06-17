@@ -18,7 +18,7 @@ layout: post
 |TJ Total|$13.77|
 
 
-Breakfast:
+**Breakfast**:  
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We visited Seattle for my nephew's college graduation ceremony and went to Starbucks reserve roastery. It's a pretty cool place and I highly recommend visiting it and we bought 2 starbucks mugs as a souvenir. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new mugs. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. Somehow standing in front of the class made me dance really hard, I was high on adrenaline for the rest of the class after my routine was over.  
 
 Lunch:
