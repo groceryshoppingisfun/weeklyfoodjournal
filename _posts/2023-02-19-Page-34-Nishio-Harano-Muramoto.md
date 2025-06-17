@@ -2,7 +2,10 @@
 layout: post
 ---
 
+*image_caption test*
 ![Page 34](assets/images/Page-34-Nishio-Harano-Muramoto.jpg)
+*image_caption*
+
 
 **Day 1:**
 
