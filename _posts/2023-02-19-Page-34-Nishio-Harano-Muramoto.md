@@ -3,7 +3,7 @@ layout: post
 ---
 
 *image_caption test*
-![Page 34](assets/images/Page-34-Nishio-Harano-Muramoto.jpg)
+![Page 34](assets/images/thai-spicy-pork-salad.jpg)
 *image_caption*
 
 
