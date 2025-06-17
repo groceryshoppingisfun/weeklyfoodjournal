@@ -2,7 +2,7 @@ title: Weekly Food Journal
 author:  # name of site's author
 email:  # email of site's author
 url: https://groceryshoppingisfun.github.io # root address of the site
-baseurl: "/cookbook" # subpath of the site, e.g. "/blog" (leave it blank "" if you're site shouldn't use a subpath)
+baseurl: "/weeklyfoodjournal" # subpath of the site, e.g. "/blog" (leave it blank "" if you're site shouldn't use a subpath)
 description: > # description of the site (multiple lines allowed)
   A (nearly) no-CSS, fast, minimalist Jekyll theme.
 
