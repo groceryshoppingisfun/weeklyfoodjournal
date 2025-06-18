@@ -46,7 +46,15 @@ I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. W
 I spent some time researching online for two things. First was to look for a facial place. I found one that looks promising and it offers a membership which allows you to get a 40% discount on all services if you go in once a month. I plan to do a monthly facial anyway. The second topic was how to hem my tshirts and tops. I like my tops to fall down to my waist, above the waist band of my bottoms. One idea is to go to get it altered, but at $15 per alteration, that would quickly add up plus my tailor would probably think I'm nuts to alter a t shirt. I found this iron-on hemming tape and I ordered some and cannot wait for it to arrive. If it works then I will hem most of my tshirts and tops. That will be quite a project as I have so many, especially work out tops. It's funny how easy it is to look for projects to work on when you have all this time in the world. All the reseach made me sleepy and time for another long nap. 
 
 ### Evening:
-He made dinner for us tonight, baked cod. I made a vegetable soup with corn. It's rare that he cooks for us as he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered wheras for me cooking puts me into a meditative state. We played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there will not be people to play with.
+Quick run to Safeway to get corns (8 for $1) and cheez-it while made dinner for us tonight, baked cod. I made a vegetable soup with corn. It's rare that he cooks for us as he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered wheras for me cooking puts me into a meditative state. We played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there will not be anyone to play with.
+Another pit stop at Safeway to pick up some sorbet as he was craving something cold and sweet. Safeway is a great place to shop if you buy their weekly sale items, I always take the time to go through their weekly ads and stock up on their sale items. 
+
+|Safeway||
+| --- | --- |
+|6 corns|$0.75|
+|Smoked Gouda Cheez-It (12.4 oz)|$1.59|
+|Lindy's Italian Ice|$4.99|
+|TJ Total|$13.77|
 
 # *Day 2 Total For Food: $35.63*
 
