@@ -2,7 +2,7 @@
 layout: post
 ---
 # Day 1:
-### Morning:  
+### Morning:
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We flew to Seattle last weekend for my nephew's college graduation ceremony and visited Starbucks reserve roastery. It's a pretty cool place and we enjoyed the coffee cocktails. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new sleek looking mugs that we bought from Starbucks roastery. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. I got picked for my favorite routine and dancing in front of the class made me dance with a lot more energy that usual, I was high on adrenaline for the rest of the class after my routine was over.  
 Did a quick Trader Joe's run. **$13.77**
 
@@ -37,7 +37,6 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 ## Day 1 Total For Food: $35.63
 
 # Day 2:
-
 ### Morning:
 I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. Went to Winco and did a $59.60 run. Too lazy to type out everything, but it's our usual bulk bin snacks, canned beans, chicken thighs and chicken wings, pork sirloin, canned oranges, limes, lemons etc. It's enough to last us the whole week and I still have a lot of vegetables which I bought from my last asian grocery store run 2 days before the start of this food journal week. 
 
@@ -49,7 +48,7 @@ I spent some time researching online for two things. First was to look for a fac
 ### Evening:
 He made dinner for us tonight, baked cod. I made a vegetable soup with corn. It's rare that he cooks for us as he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered wheras for me cooking puts me into a meditative state. We played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there will not be people to play with.
 
-# Day 2 Total For Food: $35.63
+*** ### Day 2 Total For Food: $35.63***
 
 # Day 3:
 ### Morning:
