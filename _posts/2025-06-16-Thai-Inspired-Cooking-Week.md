@@ -48,7 +48,7 @@ I spent some time researching online for two things. First was to look for a fac
 ### Evening:
 He made dinner for us tonight, baked cod. I made a vegetable soup with corn. It's rare that he cooks for us as he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered wheras for me cooking puts me into a meditative state. We played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there will not be people to play with.
 
-*** ### Day 2 Total For Food: $35.63***
+# *Day 2 Total For Food: $35.63*
 
 # Day 3:
 ### Morning:
