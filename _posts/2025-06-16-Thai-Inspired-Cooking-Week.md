@@ -34,7 +34,7 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 *Day 1 Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
-## Day 1 Total For Food: $35.63
+# *Day 1 Total For Food: $35.63*
 
 # Day 2:
 ### Morning:
