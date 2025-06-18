@@ -58,9 +58,10 @@ He made dinner for us tonight, baked cod. I made a vegetable soup with corn. It'
 # Day 2 Total For Food: $35.63
 
 # Day 3:
+No grocery runs today.
 
 ## Morning:
-Harvested more cherry tomatoes this morning. It's been producing about a pint every other day from our two plants. Made tomato omelette with toast for breakfast before going to my bollyx zumba class. I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
+Harvested more cherry tomatoes this morning. It's been producing about a pint every other day from our two plants. Made tomato omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going there when it just opened as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross.  I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
 
 *Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
