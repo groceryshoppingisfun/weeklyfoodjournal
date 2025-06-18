@@ -42,16 +42,17 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 
 # Day 1 Total For Food: $35.63
 
-Day 2:
+# Day 2:
 
-Breakfast:
+## Morning:
 I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. Went to Winco and did a $59.60 run. Too lazy to type out everything, but it's our usual bulk bin snacks, canned beans, chicken thighs and chicken wings, pork sirloin, canned oranges, limes, lemons etc. It's enough to last us the whole week and I still have a lot of vegetables which I bought from my last asian grocery store run 2 days before the start of this food journal week. 
 
-Lunch:
+## Noon:
+
+## Afternoon:
 
 ## Evening:
 He made dinner for us tonight, baked cod. I made a vegetable soup with corn. It's rare that he cooks for us as he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered wheras for me cooking puts me into a meditative state. We played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there will not be people to play with.
-
 
 # Day 2 Total For Food: $35.63
 
