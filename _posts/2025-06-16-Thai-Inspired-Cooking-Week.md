@@ -70,10 +70,9 @@ Lunch is a simple stir fried pork with ginger and green onions and rice. I was t
 
 ## Afternoon:
 
+## Evening:
 
-## Dinner:
-
-***Day 3 Total: $8***
+# Day 3 Total: $0
 
 Day 4:
 
