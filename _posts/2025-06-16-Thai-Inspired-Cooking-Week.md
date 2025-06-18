@@ -2,8 +2,8 @@
 layout: post
 ---
 
-*image_caption test*
-![Page 34](assets/images/thai-spicy-pork-salad.jpg)
+*Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
+![Page 34](assets/images/thai-grilled-pork-salad.jpg)
 *image_caption*
 
 
@@ -21,13 +21,13 @@ layout: post
 |TJ Total|$13.77|
 
 
-**Breakfast**:  
+## Breakfast:  
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We flew to Seattle for my nephew's college graduation ceremony and went to Starbucks reserve roastery. It's a pretty cool place and I highly recommend visiting it and we bought 2 starbucks mugs as a souvenir. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new mugs. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. Somehow standing in front of the class made me dance really hard, I was high on adrenaline for the rest of the class after my routine was over.  
 
 **Lunch**:  
 Met up with a girl friend for lunch and had fun catching up with her. I really love the carribean vibe and open air seating at the restaurant, I felt like I was on vacation somewhere far away. I will come back here again for Taco Tuesdays for date night with my honey. Half off all margaritas and small bites every monday so I ordered a passionfruit mango margarita.  Ordered 2 small bites with carne asada and grilled shrimp the side (**$21.86**).
 
-Dinner:
+## Dinner:
 I have been following this thai lady on youtube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Pork Salad which is spicy, sour, sweet and herby, it was just an explosion of flavor and freshness. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it. 
 
 ***Day 1 Total: $35.63***
