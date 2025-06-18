@@ -61,7 +61,7 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 
 # Day 3:
 ### Morning:
-Harvested more cherry tomatoes this morning. It's been producing about a pint every other day from our two plants. Made tomato omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going there when it just opened as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross.  I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
+Harvested more cherry tomatoes this morning. It's been producing about a pint every other day from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings when it just opened (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross.  I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
 
 *Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
