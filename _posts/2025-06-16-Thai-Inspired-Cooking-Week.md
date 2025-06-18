@@ -56,16 +56,17 @@ Dinner:
 # Day 3:
 
 
-Breakfast:
-I had a small bowl of heritage cereal (Trader Joe’s) and almond granola (Winco bulk bin) with oat milk before my bollywood zumba class this morning. Stopped by Safeway after class to pick up a loaf of french bread ($2) for lunch. He skipped breakfast and only had a cup of keurig coffee, which costs about $0.40 per pod. We buy it in bulk on sale from [Staples.com](http://Staples.com), free delivery. 
+## Breakfast:
+Harvested more cherry tomatoes this morning. It's been producing about a pint every other day from our two plants. Made tomato omelette with toast for breakfast before going to my bollyx zumba class. I came across someone posting a black bean brownie recipe and I was intrigued. I made it and it was surprisingly yummy and moist. 
 
-Lunch:
-I made italian sausages with onions and bell peppers and canned tomatoes. I love this brand called “New York Style Sausage Company” and it was on sale for 2 packs for $8 at Safeway last week. That’s 10 sausages and I usually use 2-3 sausages per meal so that $8 will last us for 3 meals. I made 2 big sandwiches with it and sprinkled feta cheese and parsley on top. It was very delicious and filling. Made myself a pour-over coffee with frothed milk.
+*Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
+![black bean brownie](assets/images/black-bean-brownie.jpg)
 
-Late night snack:
-We only played 4 games of pickleball this evening at our private club but they were really good games with lots of rallies. I was the only female and we played against 3 different mens teams. We won the last 3 games and felt really happy with the way we played and decided we deserve a treat and bought ourselves some Haagen Dazs ice cream at Safeway. They were on sale for $3 per pint. We got pistachio and coffee chocolate brownie ice cream. We had a scoop of each with some almond granola. 
 
-I also prepared a mini loaf of french toast using the leftover french bread and added a couple scoops of the pistachio ice cream for breakfast tomorrow.
+## Lunch:
+Lunch is a simple stir fried pork with ginger and green onions and rice. I was too lazy to make a second dish of vegetables stir fry so I served lunch with more of the cherry tomatoes. Had vanilla ice cream with a piece of the black bean brownie I made this morning. Very delicious and don't have to feel to guilty as the brownie is high in fiber and protein.
+
+## Dinner:
 
 ***Day 3 Total: $8***
 
