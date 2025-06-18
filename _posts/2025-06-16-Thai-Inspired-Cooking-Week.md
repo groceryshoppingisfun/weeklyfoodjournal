@@ -21,13 +21,13 @@ Did a quick Trader Joe's run. **$13.77**
 |TJ Total|$13.77|
 
 
-## Morning:  
+### Morning:  
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We flew to Seattle last weekend for my nephew's college graduation ceremony and visited Starbucks reserve roastery. It's a pretty cool place and we enjoyed the coffee cocktails. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new sleek looking mugs that we bought from Starbucks roastery. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. I got picked for my favorite routine and dancing in front of the class made me dance with a lot more energy that usual, I was high on adrenaline for the rest of the class after my routine was over.  
 
 *Day 1 Breakfast: Steamed milk bun with coconut jam*
 ![coconut jam](assets/images/coconut-jam.jpg)
 
-## Noon:  
+### Noon:  
 Met up with a girl friend for lunch and had fun catching up with her. I really love the carribean vibe and open air seating at the restaurant, I felt like I was on vacation somewhere far away. I will come back here again for half off Taco Tuesdays for date night with my honey. Half off all margaritas and small bites every monday so I ordered a passionfruit mango margarita.  Ordered 2 small bites with carne asada and grilled shrimp on the side (**$21.86**).
 
 *Day 1 Lunch: Lunch with girl friend at a carribean restaurant*
@@ -50,7 +50,7 @@ I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. W
 ## Noon:
 
 ## Afternoon:
-I spent some time researching online for two things. First was to look for a facial place. I found one that looks promising and it offers a membership which allows you to get a 40% discount on all services if you go in once a month. I plan to do a monthly facial anyway. The second topic was how to hem my tshirts and tops. I like my tops to fall down to my waist, above the waist band of my bottoms. One idea is to go to get it altered, but at $15 per alteration, that would quickly add up plus my tailor would probably think I'm nuts to alter a t shirt. I found this iron-on hemming tape and I ordered some and cannot wait for it to arrive. If it works then I will hem most of my tshirts and tops. That will be quite a project as I have so many, especially work out tops. It's funny how easy it is to look for projects to work on when you have all this time in the world. 
+I spent some time researching online for two things. First was to look for a facial place. I found one that looks promising and it offers a membership which allows you to get a 40% discount on all services if you go in once a month. I plan to do a monthly facial anyway. The second topic was how to hem my tshirts and tops. I like my tops to fall down to my waist, above the waist band of my bottoms. One idea is to go to get it altered, but at $15 per alteration, that would quickly add up plus my tailor would probably think I'm nuts to alter a t shirt. I found this iron-on hemming tape and I ordered some and cannot wait for it to arrive. If it works then I will hem most of my tshirts and tops. That will be quite a project as I have so many, especially work out tops. It's funny how easy it is to look for projects to work on when you have all this time in the world. All the reseach made me sleepy and time for another long nap. 
 
 ## Evening:
 He made dinner for us tonight, baked cod. I made a vegetable soup with corn. It's rare that he cooks for us as he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered wheras for me cooking puts me into a meditative state. We played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there will not be people to play with.
@@ -58,6 +58,7 @@ He made dinner for us tonight, baked cod. I made a vegetable soup with corn. It'
 # Day 2 Total For Food: $35.63
 
 # Day 3:
+
 ## Morning:
 Harvested more cherry tomatoes this morning. It's been producing about a pint every other day from our two plants. Made tomato omelette with toast for breakfast before going to my bollyx zumba class. I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
 
