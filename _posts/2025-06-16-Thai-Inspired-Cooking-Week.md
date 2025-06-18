@@ -30,7 +30,8 @@ Met up with a girl friend for lunch and had fun catching up with her. I really l
 After lunch I watched a couple episodes of an anime series called "Spy x Family" and then worked on this website to host my weekly food journals. Got sleepy and took a nice 1 hour nap. 
 
 ### Evening:
-I have been following this Thai lady on YouTube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Grilled Pork Salad which is spicy, sour, sweet, umami. It was just an explosion of flavor and fresh tasting from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it. 
+I have been following this Thai lady on YouTube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Grilled Pork Salad which is spicy, sour, sweet, umami. It was just an explosion of flavor and fresh tasting from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it.  
+
 *Day 1 Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
