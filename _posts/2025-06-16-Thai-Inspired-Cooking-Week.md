@@ -33,8 +33,8 @@ I have been following this thai lady on youtube called "ThaiFood Chef". I've mad
 ![coconut jam](assets/images/coconut-jam.jpg)
 
 
-*Day 1 Lunch: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
-![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
+*Day 1 Lunch: Lunch with girl friend at a carribean restaurant*
+![thai grilled pork salad](assets/images/margarita-lunch.jpg)
 
 
 ***Day 1 Total: $35.63***
