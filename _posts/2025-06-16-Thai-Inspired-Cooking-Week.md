@@ -62,9 +62,12 @@ Harvested more cherry tomatoes this morning. It's been producing about a pint ev
 *Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
 
-
 ## Lunch:
 Lunch is a simple stir fried pork with ginger and green onions and rice. I was too lazy to make a second dish of vegetables stir fry so I served lunch with more of the cherry tomatoes. Had vanilla ice cream with a piece of the black bean brownie I made this morning. Very delicious and don't have to feel to guilty as the brownie is high in fiber and protein.
+
+*Our "sweet 100" and "sungold" cherry tomato plants*
+![cherry tomato plants](assets/images/tomato-plants.jpg)
+
 
 ## Dinner:
 
