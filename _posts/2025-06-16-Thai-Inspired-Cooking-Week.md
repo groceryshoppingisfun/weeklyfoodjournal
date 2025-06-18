@@ -29,7 +29,7 @@ Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southe
 
 
 ## Lunch:  
-Met up with a girl friend for lunch and had fun catching up with her. I really love the carribean vibe and open air seating at the restaurant, I felt like I was on vacation somewhere far away. I will come back here again for Taco Tuesdays for date night with my honey. Half off all margaritas and small bites every monday so I ordered a passionfruit mango margarita.  Ordered 2 small bites with carne asada and grilled shrimp the side (**$21.86**).
+Met up with a girl friend for lunch and had fun catching up with her. I really love the carribean vibe and open air seating at the restaurant, I felt like I was on vacation somewhere far away. I will come back here again for half off Taco Tuesdays for date night with my honey. Half off all margaritas and small bites every monday so I ordered a passionfruit mango margarita.  Ordered 2 small bites with carne asada and grilled shrimp on the side (**$21.86**).
 
 *Day 1 Lunch: Lunch with girl friend at a carribean restaurant*
 ![thai grilled pork salad](assets/images/margarita-lunch.jpg)
