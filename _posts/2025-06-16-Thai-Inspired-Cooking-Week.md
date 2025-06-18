@@ -1,11 +1,6 @@
 ---
 layout: post
 ---
-
-*Day 1 Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
-![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
-
-
 # Day 1:
 ### Morning:  
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We flew to Seattle last weekend for my nephew's college graduation ceremony and visited Starbucks reserve roastery. It's a pretty cool place and we enjoyed the coffee cocktails. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new sleek looking mugs that we bought from Starbucks roastery. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. I got picked for my favorite routine and dancing in front of the class made me dance with a lot more energy that usual, I was high on adrenaline for the rest of the class after my routine was over.  
@@ -36,6 +31,9 @@ After lunch I watched a couple episodes of an anime series called "Spy x Family"
 
 ## Evening:
 I have been following this Thai lady on YouTube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Grilled Pork Salad which is spicy, sour, sweet, umami. It was just an explosion of flavor and fresh tasting from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it. 
+*Day 1 Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
+![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
+
 
 
 # Day 1 Total For Food: $35.63
