@@ -54,8 +54,6 @@ Dinner:
 ***Day 2 Total: $12***
 
 # Day 3:
-
-
 ## Breakfast:
 Harvested more cherry tomatoes this morning. It's been producing about a pint every other day from our two plants. Made tomato omelette with toast for breakfast before going to my bollyx zumba class. I came across someone posting a black bean brownie recipe and I was intrigued. I made it and it was surprisingly yummy and moist. 
 
