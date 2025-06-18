@@ -6,7 +6,7 @@ layout: post
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
 
-**Day 1:**
+# Day 1:
 Did a quick Trader Joe's run. **$13.77**
 
 |Trader Joe's||
