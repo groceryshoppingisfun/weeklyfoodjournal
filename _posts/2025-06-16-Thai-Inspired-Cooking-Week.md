@@ -36,10 +36,10 @@ Met up with a girl friend for lunch and had fun catching up with her. I really l
 
 
 ## Dinner:
-I have been following this thai lady on youtube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Pork Salad which is spicy, sour, sweet, umami. It was just an explosion of flavor and freshness from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it. 
+I have been following this Thai lady on YouTube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Grilled Pork Salad which is spicy, sour, sweet, umami. It was just an explosion of flavor and fresh tasting from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it. 
 
 
-***Day 1 Total: $35.63***
+# Day 1 Total: $35.63
 
 Day 2:
 
@@ -53,15 +53,8 @@ Dinner:
 
 ***Day 2 Total: $12***
 
-Day 3:
+# Day 3:
 
-Went to Safeway twice today.
-
-|Safeway||
-| --- | --- |
-|French bread |$2|
-|Ice cream |$6|
-|Safeway Total |$8|
 
 Breakfast:
 I had a small bowl of heritage cereal (Trader Joe’s) and almond granola (Winco bulk bin) with oat milk before my bollywood zumba class this morning. Stopped by Safeway after class to pick up a loaf of french bread ($2) for lunch. He skipped breakfast and only had a cup of keurig coffee, which costs about $0.40 per pod. We buy it in bulk on sale from [Staples.com](http://Staples.com), free delivery. 
