@@ -8,6 +8,7 @@ layout: post
 
 **Day 1:**
 Did a quick Trader Joe's run. **$13.77**
+
 |Trader Joe's||
 | --- | --- |
 |Oatmilk (2 qt)|$3.99|
