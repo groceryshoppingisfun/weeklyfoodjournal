@@ -26,51 +26,47 @@ Met up with a girl friend for lunch and had fun catching up with her. I really l
 *Day 1 Lunch: Lunch with girl friend at a carribean restaurant*
 ![thai grilled pork salad](assets/images/margarita-lunch.jpg)
 
-## Afternoon:
+### Afternoon:
 After lunch I watched a couple episodes of an anime series called "Spy x Family" and then worked on this website to host my weekly food journals. Got sleepy and took a nice 1 hour nap. 
 
-## Evening:
+### Evening:
 I have been following this Thai lady on YouTube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Grilled Pork Salad which is spicy, sour, sweet, umami. It was just an explosion of flavor and fresh tasting from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it. 
 *Day 1 Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
-
-
-# Day 1 Total For Food: $35.63
+## Day 1 Total For Food: $35.63
 
 # Day 2:
 
-## Morning:
+### Morning:
 I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. Went to Winco and did a $59.60 run. Too lazy to type out everything, but it's our usual bulk bin snacks, canned beans, chicken thighs and chicken wings, pork sirloin, canned oranges, limes, lemons etc. It's enough to last us the whole week and I still have a lot of vegetables which I bought from my last asian grocery store run 2 days before the start of this food journal week. 
 
-## Noon:
+### Noon:
 
-## Afternoon:
+### Afternoon:
 I spent some time researching online for two things. First was to look for a facial place. I found one that looks promising and it offers a membership which allows you to get a 40% discount on all services if you go in once a month. I plan to do a monthly facial anyway. The second topic was how to hem my tshirts and tops. I like my tops to fall down to my waist, above the waist band of my bottoms. One idea is to go to get it altered, but at $15 per alteration, that would quickly add up plus my tailor would probably think I'm nuts to alter a t shirt. I found this iron-on hemming tape and I ordered some and cannot wait for it to arrive. If it works then I will hem most of my tshirts and tops. That will be quite a project as I have so many, especially work out tops. It's funny how easy it is to look for projects to work on when you have all this time in the world. All the reseach made me sleepy and time for another long nap. 
 
-## Evening:
+### Evening:
 He made dinner for us tonight, baked cod. I made a vegetable soup with corn. It's rare that he cooks for us as he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered wheras for me cooking puts me into a meditative state. We played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there will not be people to play with.
 
 # Day 2 Total For Food: $35.63
 
 # Day 3:
-No grocery runs today.
-
-## Morning:
+### Morning:
 Harvested more cherry tomatoes this morning. It's been producing about a pint every other day from our two plants. Made tomato omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going there when it just opened as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross.  I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
 
 *Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
 
-## Noon:
+### Noon:
 Lunch is a simple stir fried pork with ginger and green onions and rice. I was too lazy to make a second dish of vegetables stir fry so I served lunch with more of the cherry tomatoes. Had vanilla ice cream with a piece of the black bean brownie I made this morning. Very delicious and don't have to feel to guilty as the brownie is high in fiber and protein.
 
 *Our "sweet 100" and "sungold" cherry tomato plants*
 ![cherry tomato plants](assets/images/tomato-plants.jpg)
 
-## Afternoon:
+### Afternoon:
 
-## Evening:
+### Evening:
 
 # Day 3 Total For Food: $0
 
