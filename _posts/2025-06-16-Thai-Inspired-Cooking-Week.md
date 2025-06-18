@@ -39,8 +39,6 @@ Met up with a girl friend for lunch and had fun catching up with her. I really l
 I have been following this thai lady on youtube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Pork Salad which is spicy, sour, sweet, umami. It was just an explosion of flavor and freshness from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it. 
 
 
-
-
 ***Day 1 Total: $35.63***
 
 Day 2:
