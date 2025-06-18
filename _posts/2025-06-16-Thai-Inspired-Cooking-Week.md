@@ -21,22 +21,22 @@ Did a quick Trader Joe's run. **$13.77**
 |TJ Total|$13.77|
 
 
-## Breakfast:  
+## Morning:  
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We flew to Seattle last weekend for my nephew's college graduation ceremony and visited Starbucks reserve roastery. It's a pretty cool place and we enjoyed the coffee cocktails. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new sleek looking mugs that we bought from Starbucks roastery. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. Standing in front of the class made me dance with a lot more energy that usual, I was high on adrenaline for the rest of the class after my routine was over.  
 
 *Day 1 Breakfast: Steamed milk bun with coconut jam*
 ![coconut jam](assets/images/coconut-jam.jpg)
 
-
-## Lunch:  
+## Noon:  
 Met up with a girl friend for lunch and had fun catching up with her. I really love the carribean vibe and open air seating at the restaurant, I felt like I was on vacation somewhere far away. I will come back here again for half off Taco Tuesdays for date night with my honey. Half off all margaritas and small bites every monday so I ordered a passionfruit mango margarita.  Ordered 2 small bites with carne asada and grilled shrimp on the side (**$21.86**).
 
 *Day 1 Lunch: Lunch with girl friend at a carribean restaurant*
 ![thai grilled pork salad](assets/images/margarita-lunch.jpg)
 
+## Afternoon:
 After lunch I watched a couple episodes of an anime series called "Spy x Family" and then worked on this website to host my weekly food journals. Got sleepy and took a nice 1 hour nap. 
 
-## Dinner:
+## Evening:
 I have been following this Thai lady on YouTube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Grilled Pork Salad which is spicy, sour, sweet, umami. It was just an explosion of flavor and fresh tasting from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it. 
 
 
@@ -49,23 +49,26 @@ I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. W
 
 Lunch:
 
-Dinner:
+## Evening:
+He made dinner for us tonight, baked cod. I made a vegetable soup with corn. It's rare that he cooks for us as he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered wheras for me cooking puts me into a meditative state. We played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there will not be people to play with.
 
 
 ***Day 2 Total: $12***
 
 # Day 3:
-## Breakfast:
+## Morning:
 Harvested more cherry tomatoes this morning. It's been producing about a pint every other day from our two plants. Made tomato omelette with toast for breakfast before going to my bollyx zumba class. I came across someone posting a black bean brownie recipe and I was intrigued. I made it and it was surprisingly yummy and moist. 
 
 *Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
 
-## Lunch:
+## Noon:
 Lunch is a simple stir fried pork with ginger and green onions and rice. I was too lazy to make a second dish of vegetables stir fry so I served lunch with more of the cherry tomatoes. Had vanilla ice cream with a piece of the black bean brownie I made this morning. Very delicious and don't have to feel to guilty as the brownie is high in fiber and protein.
 
 *Our "sweet 100" and "sungold" cherry tomato plants*
 ![cherry tomato plants](assets/images/tomato-plants.jpg)
+
+## Afternoon:
 
 
 ## Dinner:
