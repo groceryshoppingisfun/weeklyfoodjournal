@@ -40,7 +40,7 @@ After lunch I watched a couple episodes of an anime series called "Spy x Family"
 I have been following this Thai lady on YouTube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Grilled Pork Salad which is spicy, sour, sweet, umami. It was just an explosion of flavor and fresh tasting from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it. 
 
 
-# Day 1 Total: $35.63
+# Day 1 Total For Food: $35.63
 
 Day 2:
 
@@ -53,7 +53,7 @@ Lunch:
 He made dinner for us tonight, baked cod. I made a vegetable soup with corn. It's rare that he cooks for us as he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered wheras for me cooking puts me into a meditative state. We played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there will not be people to play with.
 
 
-***Day 2 Total: $12***
+# Day 2 Total For Food: $35.63
 
 # Day 3:
 ## Morning:
@@ -72,7 +72,7 @@ Lunch is a simple stir fried pork with ginger and green onions and rice. I was t
 
 ## Evening:
 
-# Day 3 Total: $0
+# Day 3 Total For Food: $0
 
 Day 4:
 
