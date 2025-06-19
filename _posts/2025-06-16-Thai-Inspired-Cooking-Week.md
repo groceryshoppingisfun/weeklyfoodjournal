@@ -21,7 +21,7 @@ Did a quick Trader Joe's run. **$13.77**
 |TJ Total|$13.77|
 
 ### Noon:  
-Met up with a girl friend for lunch and had fun catching up with her. I really love the carribean vibe and open air seating at the restaurant, I felt like I was on vacation somewhere far away. I will come back here again for half off Taco Tuesdays for date night with my honey. Half off all margaritas and small bites every monday so I ordered a passionfruit mango margarita.  Ordered 2 small bites with carne asada and grilled shrimp on the side (**$21.86**).
+Met up with a girl friend for lunch and had fun catching up with her. I really love the carribean vibe and open air seating with all the lush greenery and shaded areas at the restaurant, I felt like I was on vacation somewhere far away. I will come back here again for half off Taco Tuesdays for date night with my honey. Half off all margaritas and small bites every monday so I ordered a passionfruit mango margarita.  Ordered 2 small bites with carne asada and grilled shrimp on the side (**$21.86**).
 
 *Day 1 Lunch: Lunch with girl friend at a carribean restaurant*
 ![thai grilled pork salad](assets/images/margarita-lunch.jpg)
@@ -35,13 +35,14 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 *Day 1 Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
-## *Day 1 Total For Food: $35.63*
+## *Monday Total For Food: $35.63*
 
 ## Tuesday:
 ### Morning:
 I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. Went to Winco and did a **$59.50** run. Too lazy to type out everything, but it's our usual bulk bin snacks, canned beans, chicken thighs and chicken wings, pork sirloin, canned oranges, limes, lemons etc. It's enough to last us the whole week and I still have a lot of vegetables which I bought from my last asian grocery store run 2 days before the start of this food journal week. 
 
 ### Noon:
+Made a quick stir fry of snow peas, shiitake mushrooms with pork. Ate it with steamed white rice. It's very simple and easy to make but we always enjoy this kind of stir fries. 
 
 ### Afternoon:
 I spent some time researching online for two things. First was to look for a facial place. I found one that looks promising and it offers a membership which allows you to get a 40% discount on all services if you go in once a month. I plan to do a monthly facial anyway. The second topic was how to hem my tshirts and tops. I like my tops to fall down to my waist, above the waist band of my bottoms. One idea is to go to get it altered, but at $15 per alteration, that would quickly add up plus the tailor would probably think I'm nuts to alter a tshirt. I found this iron-on hemming tape and I ordered some and cannot wait for it to arrive. If it works then I will hem most of my tshirts and tops. That will be quite a project as I have so many, especially work out tops. It's funny how easy it is to look for projects to work on when you have all this time in the world. All the reseach made me sleepy and time for another long nap. 
@@ -61,7 +62,7 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 
 ## Wednesday:
 ### Morning:
-Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings when it just opened (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross. I came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
+Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings right when it opens (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross. I came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and was intrigued. I made it and it was surprisingly yummy and moist. 
 
 *Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
@@ -77,7 +78,7 @@ More writing of this food journal entry. I think writing is good for me, it uses
 
 
 ### Evening:
-Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with kaffir lime leaves, boiled egg, crushed peanuts, fried shallots, green onions which made it extra special. Pickleball at our private club after dinner. We had 3 good games against 2 other guys, we were tied at 1-1 but lost our rubber match 14 to 12. Very close game and lots of great rallies. But I was pretty bummed. I have a very stress free life and generally feel joyful, but losing in pickleball knocks a few points off and winning increases it. Consoled myself this evening by eating a big bowl of my asian sweet soup dessert.
+Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with kaffir lime leaves, boiled egg, crushed peanuts, fried shallots, green onions which made it extra special. Pickleball at our private club after dinner. We had 3 good games against 2 other guys, we were tied at 1-1 but lost our rubber match 14 to 12. Very close game and lots of great rallies. Still I was pretty bummed by our 3rd match loss. I have a very stress free life and generally feel joyful, but losing in pickleball knocks a few points off and winning increases it. Consoled myself this evening by eating a big bowl of my asian sweet soup dessert. We watched half a movie, "A few good men" and will finish the rest tomorrow. We've been on a binge recently to watch movies from the 80s and 90s. 
 
 *Thai Chicken Curry Rice Noodles*
 ![cherry tomato plants](assets/images/thai-chicken-curry-noodles.jpg)
