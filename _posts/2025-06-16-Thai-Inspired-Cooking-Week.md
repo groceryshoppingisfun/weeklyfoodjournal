@@ -23,16 +23,16 @@ Did a quick Trader Joe's run. **$13.77**
 ### Noon:  
 Met up with a girl friend for lunch and had fun catching up with her. I really love the carribean vibe and open air seating with all the lush greenery and shaded areas at the restaurant, I felt like I was on vacation somewhere far away. I will come back here again for half off Taco Tuesdays for date night with my honey. Half off all margaritas and small bites every monday so I ordered a passionfruit mango margarita.  Ordered 2 small bites with carne asada and grilled shrimp on the side (**$21.86**).
 
-*Day 1 Lunch: Lunch with girl friend at a carribean restaurant*
+*Monday Lunch: Lunch with girl friend at a carribean restaurant*
 ![thai grilled pork salad](assets/images/margarita-lunch.jpg)
 
 ### Afternoon:
 After lunch I watched a couple episodes of an anime series called "Spy x Family" and then worked on this website to host my weekly food journals. Got sleepy and took a nice 1 hour nap. 
 
 ### Evening:
-I have been following this Thai lady on YouTube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Grilled Pork Salad which is spicy, sour, sweet, umami. It was just an explosion of flavor and fresh tasting from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it.  
+I have been following this Thai lady on YouTube called "ThaiFood Chef". I've made several of her recipes and they are all simple and delicious. Today I made Thai Grilled Pork Salad which is spicy, sour, sweet and umami. It was just an explosion of flavor and so fresh tasting from the herbs. I also added some cherry tomatoes from our garden and each of them is like a flavor bomb. It's going to be hard to go back to store bought tomatoes after this. For vegetables I made a simple dashi soup with tofu, carrots and chrysanthemum greens. For once we didn't play pickleball after dinner so I decided to hand wash my car. I don't do it very often but I must say it's very satisfying to see my car so clean and knowing that I did it.  
 
-*Day 1 Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
+*Monday Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
 ## *Monday Total For Food: $35.63*
@@ -43,6 +43,11 @@ I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. W
 
 ### Noon:
 Made a quick stir fry of snow peas, shiitake mushrooms with pork. Ate it with steamed white rice. It's very simple and easy to make but we always enjoy this kind of stir fries. 
+
+*Tuesday Lunch: Snow peas, shiitake mushrooms, pork stir fry*
+![snow-peas-shiitake-pork](assets/images/snow-peas-shiitake-pork.jpg)
+
+
 
 ### Afternoon:
 I spent some time researching online for two things. First was to look for a facial place. I found one that looks promising and it offers a membership which allows you to get a 40% discount on all services if you go in once a month. I plan to do a monthly facial anyway. The second topic was how to hem my tshirts and tops. I like my tops to fall down to my waist, above the waist band of my bottoms. One idea is to go to get it altered, but at $15 per alteration, that would quickly add up plus the tailor would probably think I'm nuts to alter a tshirt. I found this iron-on hemming tape and I ordered some and cannot wait for it to arrive. If it works then I will hem most of my tshirts and tops. That will be quite a project as I have so many, especially work out tops. It's funny how easy it is to look for projects to work on when you have all this time in the world. All the reseach made me sleepy and time for another long nap. 
@@ -78,7 +83,7 @@ More writing of this food journal entry. I think writing is good for me, it uses
 
 
 ### Evening:
-Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with kaffir lime leaves, boiled egg, crushed peanuts, fried shallots, green onions which made it extra special. Pickleball at our private club after dinner. We had 3 good games against 2 other guys, we were tied at 1-1 but lost our rubber match 14 to 12. Very close game and lots of great rallies. Still I was pretty bummed by our 3rd match loss. I have a very stress free life and generally feel joyful, but losing in pickleball knocks a few points off and winning increases it. Consoled myself this evening by eating a big bowl of my asian sweet soup dessert. We watched half a movie, "A few good men" and will finish the rest tomorrow. We've been on a binge recently to watch movies from the 80s and 90s. 
+Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with kaffir lime leaves, boiled egg, crushed peanuts, fried shallots, green onions which made it extra special. Pickleball at our private club after dinner. We had 3 good games against 2 other guys, we were tied at 1-1 but lost our rubber match 14 to 12. Very close game and lots of great rallies. Still I was pretty bummed by our 3rd match loss. I have a very stress free life and generally feel joyful, but losing in pickleball knocks a few points off although winning increases it. Consoled myself this evening by eating a big bowl of my asian sweet soup dessert. We watched half a movie, "A few good men" and will finish the rest tomorrow. We've been on a binge recently to watch movies from the 80s and 90s. 
 
 *Thai Chicken Curry Rice Noodles*
 ![cherry tomato plants](assets/images/thai-chicken-curry-noodles.jpg)
