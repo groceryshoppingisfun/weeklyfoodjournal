@@ -89,9 +89,14 @@ Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with ka
 ## Thursday:
 ### Morning:
 Woke up extra early today at 6ish am. Did some redditing and got up to make a small breakfast of toast with gouda cheese. Spent 30 minutes pruning our two tomato plants. It's very therapeutic. Harvested another big bowl of cherry tomatoes. I hemmed one of my tshirt and it looks awesome! Finally I can customize the length I want. It was quite easy and took about 20 minutes. Let's see if it stays put after washing and drying it. I know he will sleep in so I went to TJ Maxx. Bought two capri tights and one maxi skirt, but I will return the capris as it bunches up behind my knee.
+Picked up a big pack of London Broil beef from Safeway (on sale for $3.99/lb) for dinner with his family tomorrow evening. It's his sister's birthday celebration.
 
 *Thursday Tomato Harvest - 14.3 oz*
 ![sungold tomatoes](assets/images/tomatoes.jpg)
+
+*Thursday London Broil Beef - $3.99/lb*
+![safeway london broil](assets/images/london-broil.jpg)
+
 
 ### Noon:
 
