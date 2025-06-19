@@ -55,13 +55,13 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 |6 corns|$0.75|
 |Smoked Gouda Cheez-It (12.4 oz)|$1.97|
 |Lindy's Italian Ice|$4.49|
-|TJ Total|$13.77|
+|Safeway Total|**$7.21**|
 
-# *Day 2 Total For Food: $35.63*
+# *Day 2 Total For Food: $66.71*
 
 # Wednesday:
 ### Morning:
-Harvested more cherry tomatoes this morning. It's been producing about a pint every other day from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings when it just opened (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross.  I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
+Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings when it just opened (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross.  I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
 
 *Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
