@@ -94,7 +94,7 @@ Picked up a big pack of London Broil beef from Safeway (on sale for $3.99/lb) fo
 *Thursday Tomato Harvest - 14.3 oz*
 ![sungold tomatoes](assets/images/tomatoes.jpg)
 
-*Thursday London Broil Beef - $3.99/lb*
+*Thursday London Broil Beef - 4 lbs at $3.99/lb*
 ![safeway london broil](assets/images/london-broil.jpg)
 
 
