@@ -46,8 +46,10 @@ Made a quick stir fry of snow peas, shiitake mushrooms with pork. Ate it with st
 
 *Tuesday Lunch: Snow peas, shiitake mushrooms, pork stir fry*
 ![snow-peas-shiitake-pork](assets/images/snow-peas-shiitake-pork.jpg)
+
 ### Afternoon:
 I spent some time researching online for two things. First was to look for a facial place. I found one that looks promising and it offers a membership which allows you to get a 40% discount on all services if you go in once a month. I plan to do a monthly facial anyway. The second topic was how to hem my tshirts and tops. I like my tops to fall down to my waist, above the waist band of my bottoms. I could get it altered, but $15 per alteration, that would quickly add up plus the tailor would probably think I'm nuts to alter a tshirt. I found this iron-on hemming tape and I ordered some and cannot wait for it to arrive. If it works then I will hem most of my tshirts and tops. That will be quite a project as I have so many, especially work out tops. It's funny how easy it is to look for projects to work on when you have all this time in the world. Spent another 30 minutes writing this weekly journal. Took a 90 minute nap. 
+
 ### Evening:
 Quick run to Safeway to get corns (8 for $1) and cheez-it while he made dinner for us tonight, baked cod. I also made a quick chrysanthemum greens soup with corn. It's rare that he cooks for us but he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered whereas for me cooking puts me into a meditative state. After dinner we played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there won't be anyone to play with.
 Another pit stop at Safeway to pick up some sorbet as he was craving something cold and sweet. Safeway is a great place to shop if you buy their weekly sale items, I always take the time to go through their weekly ads and stock up on their sale items. 
@@ -64,7 +66,7 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 ### Morning:
 Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings right when it opens (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross. I came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and was intrigued. I made it and it was surprisingly yummy and moist. 
 
-*Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
+*Wednesday Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
 
 ### Noon:
@@ -86,13 +88,12 @@ Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with ka
 
 ## Thursday:
 ### Morning:
-Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings right when it opens (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross. I came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and was intrigued. I made it and it was surprisingly yummy and moist. 
+Woke up extra early today at 6ish am. Did some redditing and got up to make a small breakfast of toast with gouda cheese. Spent 30 minutes pruning our two tomato plants. It's very therapeutic. Harvested another big bowl of cherry tomatoes. I hemmed one of my tshirt and it looks awesome! Finally I can customize the length I want. It was quite easy and took about 20 minutes. Let's see if it stays put after washing and drying it. I know he will sleep in so I went to TJ Maxx. Bought two capri tights and one maxi skirt, but I will return the capris as it bunches up behind my knee.
 
-*Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
-![black bean brownie](assets/images/black-bean-brownie.jpg)
+*Thursday Tomato Harvest - 14.3 oz*
+![sungold tomatoes](assets/images/tomatoes.jpg)
 
 ### Noon:
-Lunch is a simple stir fried pork with ginger and green onions and rice. I was too lazy to make a second dish of vegetables stir fry so I served lunch with more of the cherry tomatoes. Had vanilla ice cream with a piece of the black bean brownie I made this morning. Very yummy and we don't have to feel too guilty as the brownie is high in fiber and protein.
 
 *Our "sweet 100" and "sungold" cherry tomato plants*
 ![cherry tomato plants](assets/images/tomato-plants.jpg)
