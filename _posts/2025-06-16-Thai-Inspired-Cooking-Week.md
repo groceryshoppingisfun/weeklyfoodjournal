@@ -64,7 +64,7 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 ## *Tuesday Total For Food: $66.71*
 ## Wednesday:
 ### Morning:
-Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings right when it opens (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross. I came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and was intrigued. I made it and it was surprisingly yummy and moist. 
+Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings right when it opens (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross but came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and was intrigued. I made it and it was surprisingly yummy and moist. 
 
 *Wednesday Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
@@ -88,7 +88,7 @@ Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with ka
 
 ## Thursday:
 ### Morning:
-Woke up extra early today at 6ish am. Did some redditing and got up to make a small breakfast of toast with gouda cheese. Spent 30 minutes pruning our two tomato plants. It's very therapeutic. Harvested another big bowl of cherry tomatoes. I hemmed one of my tshirt using the hemming tape and it looks awesome! Finally I can customize the length I want. It was quite easy and took about 20 minutes. Let's see if it stays put after washing and drying it. I know he will sleep in so I went to TJ Maxx. Bought two capri tights and one maxi skirt, but I will return the capris as it bunches up behind my knee.
+Woke up extra early today at 6ish am. Did some redditing and got up to make a small breakfast of toast with gouda cheese. Spent 30 minutes pruning our two tomato plants. It's very therapeutic. Harvested another big bowl of cherry tomatoes. I've been thinking of how to better organize our spice and condiments and I found this acrylic lazy susan that should fit in the cabinets perfectly. I ordered a pack o 4 and can't wait for it to arrive tomorrow. I hemmed one of my tshirt using the hemming tape and it looks awesome! Finally I can customize the length I want. It was quite easy and took about 20 minutes. Let's see if it stays put after washing and drying it. I know he will sleep in so I went to TJ Maxx. Bought two capri tights and one maxi skirt, but I will return the capris as it bunches up behind my knee.
 Picked up a big pack of London Broil beef from Safeway (on sale for $3.99/lb) for dinner with his family tomorrow evening. It's his sister's birthday celebration.
 
 *Thursday Tomato Harvest - 14.3 oz*
