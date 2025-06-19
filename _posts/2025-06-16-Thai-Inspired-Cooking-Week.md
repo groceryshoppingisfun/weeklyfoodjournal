@@ -37,7 +37,7 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 
 # *Day 1 Total For Food: $35.63*
 
-# Day 2:
+# Tuesday:
 ### Morning:
 I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. Went to Winco and did a **$59.50** run. Too lazy to type out everything, but it's our usual bulk bin snacks, canned beans, chicken thighs and chicken wings, pork sirloin, canned oranges, limes, lemons etc. It's enough to last us the whole week and I still have a lot of vegetables which I bought from my last asian grocery store run 2 days before the start of this food journal week. 
 
@@ -47,7 +47,7 @@ I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. W
 I spent some time researching online for two things. First was to look for a facial place. I found one that looks promising and it offers a membership which allows you to get a 40% discount on all services if you go in once a month. I plan to do a monthly facial anyway. The second topic was how to hem my tshirts and tops. I like my tops to fall down to my waist, above the waist band of my bottoms. One idea is to go to get it altered, but at $15 per alteration, that would quickly add up plus the tailor would probably think I'm nuts to alter a tshirt. I found this iron-on hemming tape and I ordered some and cannot wait for it to arrive. If it works then I will hem most of my tshirts and tops. That will be quite a project as I have so many, especially work out tops. It's funny how easy it is to look for projects to work on when you have all this time in the world. All the reseach made me sleepy and time for another long nap. 
 
 ### Evening:
-Quick run to Safeway to get corns (8 for $1) and cheez-it while he made dinner for us tonight, baked cod. I also made a quick chrysanthemum greens soup with corn. It's rare that he cooks for us as he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered wheras for me cooking puts me into a meditative state. After dinner we played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there will not be anyone to play with.
+Quick run to Safeway to get corns (8 for $1) and cheez-it while he made dinner for us tonight, baked cod. I also made a quick chrysanthemum greens soup with corn. It's rare that he cooks for us but he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered whereas for me cooking puts me into a meditative state. After dinner we played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there won't be anyone to play with.
 Another pit stop at Safeway to pick up some sorbet as he was craving something cold and sweet. Safeway is a great place to shop if you buy their weekly sale items, I always take the time to go through their weekly ads and stock up on their sale items. 
 
 |Safeway||
@@ -57,11 +57,11 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 |Lindy's Italian Ice|$4.49|
 |Safeway Total|**$7.21**|
 
-# *Day 2 Total For Food: $66.71*
+# *Tuesday Total For Food: $66.71*
 
 # Wednesday:
 ### Morning:
-Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings when it just opened (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross.  I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
+Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings when it just opened (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross. I came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
 
 *Day 3 Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
@@ -83,4 +83,4 @@ Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with ka
 ![cherry tomato plants](assets/images/thai-chicken-curry-noodles.jpg)
 
 
-# Day 3 Total For Food: $0
+# *Wednesday Total For Food: $0*
