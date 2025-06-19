@@ -1,7 +1,7 @@
 ---
 layout: post
 ---
-# Monday:
+## Monday:
 ### Morning:
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We flew to Seattle last weekend for my nephew's college graduation ceremony and visited Starbucks reserve roastery. It's a pretty cool place and we enjoyed the coffee cocktails. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new sleek looking mugs that we bought from Starbucks roastery. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. I got picked for my favorite routine and dancing in front of the class made me dance with a lot more energy that usual, I was high on adrenaline for the rest of the class after my routine was over.  
 Did a quick Trader Joe's run. **$13.77**
@@ -35,9 +35,9 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 *Day 1 Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
-# *Day 1 Total For Food: $35.63*
+## *Day 1 Total For Food: $35.63*
 
-# Tuesday:
+## Tuesday:
 ### Morning:
 I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. Went to Winco and did a **$59.50** run. Too lazy to type out everything, but it's our usual bulk bin snacks, canned beans, chicken thighs and chicken wings, pork sirloin, canned oranges, limes, lemons etc. It's enough to last us the whole week and I still have a lot of vegetables which I bought from my last asian grocery store run 2 days before the start of this food journal week. 
 
@@ -57,9 +57,9 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 |Lindy's Italian Ice|$4.49|
 |Safeway Total|**$7.21**|
 
-# *Tuesday Total For Food: $66.71*
+## *Tuesday Total For Food: $66.71*
 
-# Wednesday:
+## Wednesday:
 ### Morning:
 Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings when it just opened (9 am) as it's not crowded and no wait in the self service fitting room. I love looking for active wear at Ross. I came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and I was intrigued. I made it and it was surprisingly yummy and moist. 
 
@@ -82,5 +82,4 @@ Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with ka
 *Thai Chicken Curry Rice Noodles*
 ![cherry tomato plants](assets/images/thai-chicken-curry-noodles.jpg)
 
-
-# *Wednesday Total For Food: $0*
+## *Wednesday Total For Food: $0*
