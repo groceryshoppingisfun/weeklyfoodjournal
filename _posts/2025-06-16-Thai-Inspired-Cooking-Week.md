@@ -73,7 +73,14 @@ Lunch is a simple stir fried pork with ginger and green onions and rice. I was t
 ![cherry tomato plants](assets/images/tomato-plants.jpg)
 
 ### Afternoon:
+More writing of this food journal entry. I think writing is good for me, it uses a different part of my brain and I feel accomplished after writing. One episode of Spy X Family and another 1 hour nap.
+
 
 ### Evening:
+Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with kaffir lime leaves, boiled egg, crushed peanuts, fried shallots, green onions which made it extra special. Pickleball at our private club after dinner. We had 3 good games against 2 other guys, we were tied at 1-1 but lost our rubber match 14 to 12. Very close game and lots of great rallies. But I was pretty bummed. I have a very stress free life and generally feel joyful, but losing in pickleball knocks a few points off and winning increases it. Consoled myself this evening by eating a big bowl of my asian sweet soup dessert.
+
+*Thai Chicken Curry Rice Noodles*
+![cherry tomato plants](assets/images/thai-chicken-curry-noodles.jpg)
+
 
 # Day 3 Total For Food: $0
