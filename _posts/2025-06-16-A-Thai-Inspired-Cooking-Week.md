@@ -6,7 +6,7 @@ layout: post
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We flew to Seattle last weekend for my nephew's college graduation ceremony and visited Starbucks reserve roastery. It's a pretty cool place and we enjoyed the coffee cocktails. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new sleek looking mugs that we bought from Starbucks roastery. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. I got picked for my favorite routine and dancing in front of the class made me dance with a lot more energy that usual, I was high on adrenaline for the rest of the class after my routine was over.  
 Did a quick Trader Joe's run. **$13.77**
 
-#####Day 1 Breakfast: Steamed milk bun with coconut jam. Ube Coffee Martini at Starbucks Reserve
+***Day 1 Breakfast: Steamed milk bun with coconut jam. Ube Coffee Martini at Starbucks Reserve***
 ![coconut jam](assets/images/ube-coffee-martini.jpg)
 
 |Trader Joe's||
@@ -99,10 +99,7 @@ Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with ka
 Woke up extra early today at 6ish am. Did some redditing and got up to make a small breakfast of toast with gouda cheese. Spent 30 minutes pruning our two tomato plants. It's very therapeutic. Harvested another big bowl of cherry tomatoes. I've been thinking of how to better organize our spice and condiments and I found this acrylic lazy susan that should fit in the cabinets perfectly. I ordered a pack o 4 and can't wait for it to arrive tomorrow. I hemmed one of my tshirt using the hemming tape and it looks awesome! Finally I can customize the length I want. It was quite easy and took about 20 minutes. Let's see if it stays put after washing and drying it. I know he will sleep in so I went to TJ Maxx. Bought two capri tights and one maxi skirt, but I will return the capris as it bunches up behind my knee.
 Picked up a big pack of London Broil beef from Safeway (on sale for $3.99/lb) for dinner with his family tomorrow evening. It's his sister's birthday celebration.
 
-*Thursday Tomato Harvest - 14.3 oz*
-![sungold tomatoes](assets/images/tomatoes.jpg)
-
-#####Thursday Tomato Harvest - 14.3 oz
+***Thursday Tomato Harvest - 14.3 oz  ***
 ![sungold tomatoes](assets/images/tomatoes.jpg)
 
 
