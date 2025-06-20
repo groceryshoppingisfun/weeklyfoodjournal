@@ -92,7 +92,7 @@ Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with ka
 *Thai Chicken Curry Rice Noodles*
 ![cherry tomato plants](assets/images/thai-chicken-curry-noodles.jpg)
 
-### *Wednesday Total For Food: $0*
+#### Wednesday Total For Food: $0
 
 ## Thursday:
 ### Morning:
@@ -120,7 +120,7 @@ Tried to make an indian chicken curry dish and of all the cuisines I've tried, I
 *Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens*
 ![chicken-curry](assets/images/chicken-curry.jpg)
 
-### *Thursday Total For Food: $15.72*
+#### Thursday Total For Food: $15.72
 
 # Friday 
 ## Friday 
