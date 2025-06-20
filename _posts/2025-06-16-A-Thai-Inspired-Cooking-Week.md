@@ -2,7 +2,7 @@
 layout: post
 ---
 ## Monday:
-### Morning:
+### Morning: 
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We flew to Seattle last weekend for my nephew's college graduation ceremony and visited Starbucks reserve roastery. It's a pretty cool place and we enjoyed the coffee cocktails. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new sleek looking mugs that we bought from Starbucks roastery. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. I got picked for my favorite routine and dancing in front of the class made me dance with a lot more energy that usual, I was high on adrenaline for the rest of the class after my routine was over.  
 Did a quick Trader Joe's run. **$13.77**
 
@@ -95,7 +95,7 @@ Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with ka
 #### Wednesday Total For Food: $0
 
 ## Thursday:
-### Morning:
+### Morning: 
 Woke up extra early today at 6ish am. Did some redditing and got up to make a small breakfast of toast with gouda cheese. Spent 30 minutes pruning our two tomato plants. It's very therapeutic. Harvested another big bowl of cherry tomatoes. I've been thinking of how to better organize our spice and condiments and I found this acrylic lazy susan that should fit in the cabinets perfectly. I ordered a pack o 4 and can't wait for it to arrive tomorrow. I hemmed one of my tshirt using the hemming tape and it looks awesome! Finally I can customize the length I want. It was quite easy and took about 20 minutes. Let's see if it stays put after washing and drying it. I know he will sleep in so I went to TJ Maxx. Bought two capri tights and one maxi skirt, but I will return the capris as it bunches up behind my knee.
 Picked up a big pack of London Broil beef from Safeway (on sale for $3.99/lb) for dinner with his family tomorrow evening. It's his sister's birthday celebration.
 
@@ -115,12 +115,13 @@ Got home too late to make mexican shredded chicken, a new recipe I had been want
 He did a few laundry loads of bedsheets and towels and mopped the floors. We live in a very clean and minimalist house, it always feel so zen here, I love it. I folded the laundry and did more writing and watched an episode of Spy x Family. 10 minute meditation followed by a 2 hour nap as I woke up too early this morning.
 
 ## Evening
-Tried to make an indian chicken curry dish and of all the cuisines I've tried, I have the lowest success with indian. I shouldn't have used our overly flavorful homegrown sungold cherry tomatoes in the curry dish and it made it tastes very fruity and looks bright yellow. It's not bad but nothing at all how it should look and taste like. Made a side salad of boiled and lightly seasoned chrystanthemum greens. It's a very windy evening so no pickleball tonight. We decided to check out a bowling alley/axe throwing place, didn't play any games but we might for next date night. Strolled around Target to get some steps in. Finished the second half of "A few good men". Jack Nicholson makes such a good villain and I really enjoyed the last 15 minutes of the courtroom drama and I want to rewatch just that part again. I love how a good movie makes me feel, it's so satisfying.
+Tried to make an indian chicken curry dish and of all the cuisines I've tried, I have the lowest success with indian. I shouldn't have used our overly flavorful homegrown sungold cherry tomatoes in the curry dish resulting in a a very fruity taste. It's not bad but nothing at all how it should look and taste like. Made a side salad of boiled and lightly seasoned chrystanthemum greens. It's a very windy evening so no pickleball tonight. We decided to check out a bowling alley/axe throwing place, didn't play any games but we might for next date night. Strolled around Target to get some steps in. Finished the second half of "A few good men". Jack Nicholson makes such a good villain and I really enjoyed the last 15 minutes of the courtroom drama and I want to rewatch just that part again. I love how a good movie makes me feel, it's so satisfying.
 
 *Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens*
 ![chicken-curry](assets/images/chicken-curry.jpg)
 
 #### Thursday Total For Food: $15.72
 
-# Friday 
 ## Friday 
+### Morning: 
+Steamed 2 froz
