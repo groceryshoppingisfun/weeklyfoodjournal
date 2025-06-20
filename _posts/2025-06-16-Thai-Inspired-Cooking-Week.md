@@ -54,6 +54,9 @@ I spent some time researching online for two things. First was to look for a fac
 Quick run to Safeway to get corns (8 for $1) and cheez-it while he made dinner for us tonight, baked cod. I also made a quick chrysanthemum greens soup with corn. It's rare that he cooks for us but he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered whereas for me cooking puts me into a meditative state. After dinner we played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there won't be anyone to play with.
 Another pit stop at Safeway to pick up some sorbet as he was craving something cold and sweet. Safeway is a great place to shop if you buy their weekly sale items, I always take the time to go through their weekly ads and stock up on their sale items. 
 
+*Tuesday Dinner: He made baked alaskan cod*
+![baked-alaskan-code](assets/images/baked-alaskan-code.jpg)
+
 |Safeway||
 | --- | --- |
 |6 corns|$0.75|
@@ -107,6 +110,10 @@ Got home too late to make mexican shredded chicken, a new recipe I had been want
 He did a few laundry loads of bedsheets and towels and mopped the floors. We live in a very clean and minimalist house, it always feel so zen here, I love it. I folded the laundry and did more writing and watched an episode of Spy x Family. 2 hour nap as I woke up too early this morning.
 
 ## Evening
-Tried to make an indian chicken curry dish and of all the cuisines I've tried, I have the lowest success with indian. I used our very flavorful homegrown sungold cherry tomatoes in the curry dish and it made it tastes very fruity and yellowish, sort of like carribean curry. It's not bad but nothing at all how it should look and taste like. It's a very windy evening so no pickleball tonight. We decided to check out a bowling alley/axe throwing place, didn't play any games but we might for next date night. Strolled around Target to get some steps in. Finished the second half of "A few good men". Jack Nicholson makes such a good villain and I really enjoyed the last 15 minutes of the courtroom drama and I want to rewatch just that part again. I love how a good movie makes me feel, it's so satisfying.
+Tried to make an indian chicken curry dish and of all the cuisines I've tried, I have the lowest success with indian. I shouldn't have used our overly flavorful homegrown sungold cherry tomatoes in the curry dish and it made it tastes very fruity and looks bright yellow. It's not bad but nothing at all how it should look and taste like. Made a side salad of boiled and lightly seasoned chrystanthemum greens. It's a very windy evening so no pickleball tonight. We decided to check out a bowling alley/axe throwing place, didn't play any games but we might for next date night. Strolled around Target to get some steps in. Finished the second half of "A few good men". Jack Nicholson makes such a good villain and I really enjoyed the last 15 minutes of the courtroom drama and I want to rewatch just that part again. I love how a good movie makes me feel, it's so satisfying.
+
+*Thursday Dinner: Fruity Chicken Curry*
+![chicken-curry](assets/images/chicken-curry.jpg)
+
 
 ## *Thursday Total For Food: $15.72*
