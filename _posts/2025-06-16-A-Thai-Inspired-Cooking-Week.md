@@ -112,7 +112,7 @@ Got home too late to make mexican shredded chicken, a new recipe I had been want
 ![Thursday Lunch: Grilled beef with tomato/corn/black bean salad](assets/images/grilled-london-broil.jpg)
 
 ## Afternoon:
-He did a few laundry loads of bedsheets and towels and mopped the floors. We live in a very clean and minimalist house, it always feel so zen here, I love it. I folded the laundry and did more writing and watched an episode of Spy x Family. 2 hour nap as I woke up too early this morning.
+He did a few laundry loads of bedsheets and towels and mopped the floors. We live in a very clean and minimalist house, it always feel so zen here, I love it. I folded the laundry and did more writing and watched an episode of Spy x Family. 10 minute meditation followed by a 2 hour nap as I woke up too early this morning.
 
 ## Evening
 Tried to make an indian chicken curry dish and of all the cuisines I've tried, I have the lowest success with indian. I shouldn't have used our overly flavorful homegrown sungold cherry tomatoes in the curry dish and it made it tastes very fruity and looks bright yellow. It's not bad but nothing at all how it should look and taste like. Made a side salad of boiled and lightly seasoned chrystanthemum greens. It's a very windy evening so no pickleball tonight. We decided to check out a bowling alley/axe throwing place, didn't play any games but we might for next date night. Strolled around Target to get some steps in. Finished the second half of "A few good men". Jack Nicholson makes such a good villain and I really enjoyed the last 15 minutes of the courtroom drama and I want to rewatch just that part again. I love how a good movie makes me feel, it's so satisfying.
