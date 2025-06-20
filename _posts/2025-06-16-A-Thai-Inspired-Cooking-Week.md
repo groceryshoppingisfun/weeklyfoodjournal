@@ -35,7 +35,7 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 *Monday Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
-## *Monday Total For Food: $35.63*
+### *Monday Total For Food: $35.63*
 
 ## Tuesday:
 ### Morning:
@@ -68,10 +68,10 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 |Lindy's Italian Ice|$4.49|
 |Safeway Total|**$7.21**|
 
-## *Tuesday Total For Food: $66.71*
+### *Tuesday Total For Food: $66.71*
 
 ## Wednesday:
-### Morning:
+### Morning: 
 Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings right when it opens (9 am) as it's not crowded and no wait in the self service fitting room. I love buying active wear at Ross but came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and was intrigued. I made it and it was surprisingly yummy and moist. 
 
 ***Wednesday Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts***
@@ -92,7 +92,7 @@ Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with ka
 ***Thai Chicken Curry Rice Noodles***
 ![cherry tomato plants](assets/images/thai-chicken-curry-noodles.jpg)
 
-## Wednesday Total For Food: $0
+### Wednesday Total For Food: $0
 
 ## Thursday:
 ### Morning: 
@@ -112,17 +112,17 @@ Got home too late to make mexican shredded chicken, a new recipe I had been want
 *Thursday Lunch: Grilled London Broil, Corn, tomato and blackbean salad*
 ![Thursday Lunch: Grilled beef with tomato/corn/black bean salad](assets/images/grilled-london-broil.jpg)
 
-## Afternoon:
+### Afternoon:
 He did a few laundry loads of bedsheets and towels and mopped the floors. We live in a very clean and minimalist house, it always feel so zen here, I love it. I folded the laundry and did more writing and watched an episode of Spy x Family. 10 minute meditation followed by a 2 hour nap as I woke up too early this morning.
 
-## Evening
+### Evening
 Tried to make an indian chicken curry dish and of all the cuisines I've tried, I have the lowest success with indian. I shouldn't have used our overly flavorful homegrown sungold cherry tomatoes in the curry dish resulting in a a very fruity taste. It's not bad but nothing at all how it should look and taste like. Made a side salad of boiled and lightly seasoned chrystanthemum greens. It's a very windy evening so no pickleball tonight. We decided to check out a bowling alley/axe throwing place, didn't play any games but we might for next date night. Strolled around Target to get some steps in. Finished the second half of "A few good men". Jack Nicholson makes such a good villain and I really enjoyed the last 15 minutes of the courtroom drama and I want to rewatch just that part again. I love how a good movie makes me feel, it's so satisfying.
 
 *Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens*
 ![chicken-curry](assets/images/chicken-curry.jpg)
 
-## Thursday Total For Food: $15.72
+### Thursday Total For Food: $15.72
 
 ## Friday 
-### Morning:  
+### Morning: 
 Woke up at 7.45 am, had a good 7 hour sleep.
