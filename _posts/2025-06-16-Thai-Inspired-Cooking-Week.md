@@ -98,7 +98,7 @@ Picked up a big pack of London Broil beef from Safeway (on sale for $3.99/lb) fo
 ![safeway london broil](assets/images/london-broil.jpg)
 
 ### Noon:
-Got home too late to make mexican shredded chicken, a new recipe I had been wanting to try. So I took half a pound of the flank steak and seasoned it with garlic salt pepper blend, grilled it for a couple minutes on each side on a grill pan in our backyard. Luckily I had prepped a corn, black bean and tomato salad already yesterday and still had some leftover rice Lunch was pretty delicious and came together in under 15 minutes.
+Got home too late to make mexican shredded chicken, a new recipe I had been wanting to try. So I took half a pound of the flank steak, seasoned it with garlic salt pepper blend and grilled it for a couple minutes on each side on a grill pan in our backyard. Luckily I had prepped a corn, black bean and tomato salad already yesterday and still had some leftover rice Lunch was pretty delicious and came together in under 15 minutes.
 
 *Thursday Lunch: Grilled London Broil, Corn, tomato and blackbean salad*
 ![Thursday Lunch: Grilled beef with tomato/corn/black bean salad](assets/images/grilled-london-broil.jpg)
@@ -107,5 +107,6 @@ Got home too late to make mexican shredded chicken, a new recipe I had been want
 He did a few laundry loads of bedsheets and towels and mopped the floors. We live in a very clean and minimalist house, it always feel so zen here, I love it. I folded the laundry and did more writing and watched an episode of Spy x Family. 2 hour nap as I woke up too early this morning.
 
 ## Evening
+Tried to make an indian chicken curry dish and of all the cuisines I've tried, I have the lowest success with indian. I used our sungold cherry tomatoes in the curry dish and it make it tastes very fruity and yellowish, sort of like carribean curry. It's not bad but nothing at all how it should look and taste like. It's a very windy evening so no pickleball tonight. We decided to check out a bowling alley/axe throwing place, didn't play any games but we might for next date night. Strolled around Target to get some steps in. Finished the second half of "A few good men". Jack Nicholson makes such a good villain and I really enjoyed the last 15 minutes of the courtroom drama and I want to rewatch just that part again. I love how a good movie makes me feel, it's so satisfying.
 
 ## *Thursday Total For Food: $15.72*
