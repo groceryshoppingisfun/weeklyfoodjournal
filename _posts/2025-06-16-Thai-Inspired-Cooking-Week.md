@@ -97,11 +97,15 @@ Picked up a big pack of London Broil beef from Safeway (on sale for $3.99/lb) fo
 *Thursday London Broil Beef - 4 lbs at $3.99/lb*
 ![safeway london broil](assets/images/london-broil.jpg)
 
-
 ### Noon:
-Got home late to make mexican shredded chicken which I was planning to make. I took half a pound of the flank steak and seasoned it with garlic salt pepper blend, grilled it for a couple minutes on each side on a grill pan in our backyard. Luckily I had prepped a corn, black bean and tomato salad already yesterday and still had some leftover rice Lunch was pretty delicious and came together in under 15 minutes.
+Got home too late to make mexican shredded chicken, a new recipe I had been wanting to try. So I took half a pound of the flank steak and seasoned it with garlic salt pepper blend, grilled it for a couple minutes on each side on a grill pan in our backyard. Luckily I had prepped a corn, black bean and tomato salad already yesterday and still had some leftover rice Lunch was pretty delicious and came together in under 15 minutes.
 
 *Thursday Lunch: Grilled London Broil, Corn, tomato and blackbean salad*
 ![Thursday Lunch: Grilled beef with tomato/corn/black bean salad](assets/images/grilled-london-broil.jpg)
+
+## Afternoon:
+He did a few laundry loads of bedsheets and towels and mopped the floors. We live in a very clean and minimalist house, it always feel so zen here, I love it. I folded the laundry and did more writing and watched an episode of Spy x Family. 2 hour nap as I woke up too early this morning.
+
+## Evening
 
 ## *Thursday Total For Food: $15.72*
