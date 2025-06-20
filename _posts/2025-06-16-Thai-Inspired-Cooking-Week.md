@@ -42,7 +42,7 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. Went to Winco and spent **$59.50** on bulk bin snacks, canned beans, chicken thighs and chicken wings, pork sirloin, canned oranges, limes, lemons, blackberries etc. It's enough to last us the whole week and I still have a lot of vegetables which I bought from my last asian grocery store run 2 days before the start of this food journal week. 
 
 *Tuesday Breakfast: Homegrown tomatoes omelette*
-![tomato-omelette](assets/images/tomato-omlette.jpg)
+![tomato-omelette](assets/images/tomato-omelette.jpg)
 
 
 ### Noon:
@@ -119,6 +119,5 @@ Tried to make an indian chicken curry dish and of all the cuisines I've tried, I
 
 *Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens*
 ![chicken-curry](assets/images/chicken-curry.jpg)
-
 
 ## *Thursday Total For Food: $15.72*
