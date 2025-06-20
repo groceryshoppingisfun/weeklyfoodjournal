@@ -121,3 +121,6 @@ Tried to make an indian chicken curry dish and of all the cuisines I've tried, I
 ![chicken-curry](assets/images/chicken-curry.jpg)
 
 ## *Thursday Total For Food: $15.72*
+
+# Friday 
+## Friday 
