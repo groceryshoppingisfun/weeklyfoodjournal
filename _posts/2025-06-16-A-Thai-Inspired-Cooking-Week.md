@@ -6,7 +6,7 @@ layout: post
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We flew to Seattle last weekend for my nephew's college graduation ceremony and visited Starbucks reserve roastery. It's a pretty cool place and we enjoyed the coffee cocktails. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new sleek looking mugs that we bought from Starbucks roastery. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. I got picked for my favorite routine and dancing in front of the class made me dance with a lot more energy that usual, I was high on adrenaline for the rest of the class after my routine was over.  
 Did a quick Trader Joe's run. **$13.77**
 
-*Day 1 Breakfast: Steamed milk bun with coconut jam. Ube Coffee Martini at Starbucks Reserve*
+#####Day 1 Breakfast: Steamed milk bun with coconut jam. Ube Coffee Martini at Starbucks Reserve
 ![coconut jam](assets/images/ube-coffee-martini.jpg)
 
 |Trader Joe's||
@@ -102,6 +102,10 @@ Picked up a big pack of London Broil beef from Safeway (on sale for $3.99/lb) fo
 *Thursday Tomato Harvest - 14.3 oz*
 ![sungold tomatoes](assets/images/tomatoes.jpg)
 
+#####Thursday Tomato Harvest - 14.3 oz
+![sungold tomatoes](assets/images/tomatoes.jpg)
+
+
 *Thursday London Broil Beef - 4 lbs at $3.99/lb*
 ![safeway london broil](assets/images/london-broil.jpg)
 
@@ -119,14 +123,6 @@ Tried to make an indian chicken curry dish and of all the cuisines I've tried, I
 
 *Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens*
 ![chicken-curry](assets/images/chicken-curry.jpg)
-
-
-| *Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens* |
-|:--:|
-| ![chicken-curry](assets/images/chicken-curry.jpg) | 
- 
-
-
 
 #### Thursday Total For Food: $15.72
 
