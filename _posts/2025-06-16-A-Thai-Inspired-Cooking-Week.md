@@ -35,7 +35,7 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 *Monday Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
-## *Monday Total For Food: $35.63*
+### *Monday Total For Food: $35.63*
 
 ## Tuesday:
 ### Morning:
@@ -68,7 +68,7 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 |Lindy's Italian Ice|$4.49|
 |Safeway Total|**$7.21**|
 
-## *Tuesday Total For Food: $66.71*
+### *Tuesday Total For Food: $66.71*
 
 ## Wednesday:
 ### Morning:
@@ -92,7 +92,7 @@ Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with ka
 *Thai Chicken Curry Rice Noodles*
 ![cherry tomato plants](assets/images/thai-chicken-curry-noodles.jpg)
 
-## *Wednesday Total For Food: $0*
+### *Wednesday Total For Food: $0*
 
 ## Thursday:
 ### Morning:
@@ -120,7 +120,7 @@ Tried to make an indian chicken curry dish and of all the cuisines I've tried, I
 *Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens*
 ![chicken-curry](assets/images/chicken-curry.jpg)
 
-## *Thursday Total For Food: $15.72*
+### *Thursday Total For Food: $15.72*
 
 # Friday 
 ## Friday 
