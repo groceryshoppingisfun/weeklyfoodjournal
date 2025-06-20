@@ -35,7 +35,7 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 *Monday Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
-### *Monday Total For Food: $35.63*
+### Monday Total For Food: $35.63
 
 ## Tuesday:
 ### Morning:
@@ -68,7 +68,7 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 |Lindy's Italian Ice|$4.49|
 |Safeway Total|**$7.21**|
 
-### *Tuesday Total For Food: $66.71*
+### Tuesday Total For Food: $66.71
 
 ## Wednesday:
 ### Morning: 
@@ -125,4 +125,4 @@ Tried to make an indian chicken curry dish and of all the cuisines I've tried, I
 
 ## Friday 
 ### Morning: 
-Woke up at 7.45 am, had a good 7 hour sleep.
+Woke up at 7.45 am, had a good 7 hour sleep. Harvested more tomatoes and prepped a few more side dishes for the family dinner tonight. Went to my usual Step Aerobics class, it's good cardio but also good brain exercise as the step patterns is always changing. 
