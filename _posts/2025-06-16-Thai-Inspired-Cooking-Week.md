@@ -6,8 +6,8 @@ layout: post
 Steamed 2 frozen chinese milk buns and ate it with coconut jam which is a southeast asian speciality. We flew to Seattle last weekend for my nephew's college graduation ceremony and visited Starbucks reserve roastery. It's a pretty cool place and we enjoyed the coffee cocktails. I made pour-over coffee with frothed milk and somehow it tasted better when drank from the new sleek looking mugs that we bought from Starbucks roastery. Today morning's dance fitness class was especially fun as the intructor picked a few folks to lead each dance. We've done the same routines many times so most of us know it by heart. I got picked for my favorite routine and dancing in front of the class made me dance with a lot more energy that usual, I was high on adrenaline for the rest of the class after my routine was over.  
 Did a quick Trader Joe's run. **$13.77**
 
-*Day 1 Breakfast: Steamed milk bun with coconut jam*
-![coconut jam](assets/images/coconut-jam.jpg)
+*Day 1 Breakfast: Steamed milk bun with coconut jam. Ube Coffee Martini at Starbucks Reserve*
+![coconut jam](assets/images/ube-coffee-martini.jpg)
 
 |Trader Joe's||
 | --- | --- |
@@ -99,6 +99,9 @@ Picked up a big pack of London Broil beef from Safeway (on sale for $3.99/lb) fo
 
 
 ### Noon:
+Got home late to make mexican shredded chicken which I was planning to make. I took half a pound of the flank steak and seasoned it with garlic salt pepper blend, grilled it for a couple minutes on each side on a grill pan in our backyard. Luckily I had prepped a corn, black bean and tomato salad already yesterday and still had some leftover rice Lunch was pretty delicious and came together in under 15 minutes.
 
-*Our "sweet 100" and "sungold" cherry tomato plants*
-![cherry tomato plants](assets/images/tomato-plants.jpg)
+*Thursday Lunch: Grilled London Broil, Corn, tomato and blackbean salad*
+![Thursday Lunch: Grilled beef with tomato/corn/black bean salad](assets/images/grilled-london-broil.jpg)
+
+## *Thursday Total For Food: $15.72*
