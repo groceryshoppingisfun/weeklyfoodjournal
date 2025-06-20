@@ -35,13 +35,13 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 *Monday Dinner: Thai Grilled Pork Salad, Homegrown cherry tomatoes, Tofu with Chrysanthemum greens soup*
 ![thai grilled pork salad](assets/images/thai-grilled-pork-salad.jpg)
 
-### *Monday Total For Food: $35.63*
+## *Monday Total For Food: $35.63*
 
 ## Tuesday:
 ### Morning:
 I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. Went to Winco and spent **$59.50** on bulk bin snacks, canned beans, chicken thighs and chicken wings, pork sirloin, canned oranges, limes, lemons, blackberries etc. It's enough to last us the whole week and I still have a lot of vegetables which I bought from my last asian grocery store run 2 days before the start of this food journal week. 
 
-*Tuesday Breakfast: Homegrown tomatoes omelette*
+***Tuesday Breakfast: Homegrown tomatoes omelette***
 ![tomato-omelette](assets/images/tomato-omelette.jpg)
 
 
@@ -58,7 +58,7 @@ I spent some time researching online for two things. First was to look for a fac
 Quick run to Safeway to get corns (8 for $1) and cheez-it while he made dinner for us tonight, baked cod. I also made a quick chrysanthemum greens soup with corn. It's rare that he cooks for us but he does all of the cleaning, and I do most of the cooking, which makes us a perfect match. It's adorable to see him cook as he does get flustered whereas for me cooking puts me into a meditative state. After dinner we played pickleball with another couple at our club, very fun with long rallies. It's so nice to not to have to wait for courts unlike playing at the public park, the only problem is we do have to schedule games otherwise there won't be anyone to play with.
 Another pit stop at Safeway to pick up some sorbet as he was craving something cold and sweet. Safeway is a great place to shop if you buy their weekly sale items, I always take the time to go through their weekly ads and stock up on their sale items. 
 
-*Tuesday Dinner: He made baked alaskan cod*
+***Tuesday Dinner: He made baked alaskan cod***
 ![baked-alaskan-code](assets/images/baked-alaskan-cod.jpg)
 
 |Safeway||
@@ -68,19 +68,19 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 |Lindy's Italian Ice|$4.49|
 |Safeway Total|**$7.21**|
 
-### *Tuesday Total For Food: $66.71*
+## *Tuesday Total For Food: $66.71*
 
 ## Wednesday:
 ### Morning:
 Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings right when it opens (9 am) as it's not crowded and no wait in the self service fitting room. I love buying active wear at Ross but came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and was intrigued. I made it and it was surprisingly yummy and moist. 
 
-*Wednesday Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts*
+***Wednesday Snack: Black bean brownie - Canned black beans, brownie mix, egg, instant coffee, walnuts***
 ![black bean brownie](assets/images/black-bean-brownie.jpg)
 
 ### Noon:
 Lunch is a simple stir fried pork with ginger and green onions and rice. I was too lazy to make a second dish of vegetables stir fry so I served lunch with more of the cherry tomatoes. Had vanilla ice cream with a piece of the black bean brownie I made this morning. Very yummy and we don't have to feel too guilty as the brownie is high in fiber and protein.
 
-*Our "sweet 100" and "sungold" cherry tomato plants*
+***Our "sweet 100" and "sungold" cherry tomato plants***
 ![cherry tomato plants](assets/images/tomato-plants.jpg)
 
 ### Afternoon:
@@ -89,21 +89,21 @@ More writing of this food journal entry. I think writing is good for me, it uses
 ### Evening:
 Made a very soul soothing Thai chicken curry rice noodle soup. Garnished with kaffir lime leaves, boiled egg, crushed peanuts, fried shallots, green onions which made it extra special. Pickleball at our private club after dinner. We had 3 good games against 2 other guys, we were tied at 1-1 but lost our rubber match 14 to 12. Very close game and lots of great rallies. Still I was pretty bummed by our 3rd match loss. I have a very stress free life and generally feel joyful, but losing in pickleball knocks a few points off although winning increases it. Consoled myself this evening by eating a big bowl of my asian sweet soup dessert. We watched half a movie, "A few good men" and will finish the rest tomorrow. We've been on a binge recently to watch movies from the 80s and 90s. 
 
-*Thai Chicken Curry Rice Noodles*
+***Thai Chicken Curry Rice Noodles***
 ![cherry tomato plants](assets/images/thai-chicken-curry-noodles.jpg)
 
-#### Wednesday Total For Food: $0
+## Wednesday Total For Food: $0
 
 ## Thursday:
 ### Morning: 
 Woke up extra early today at 6ish am. Did some redditing and got up to make a small breakfast of toast with gouda cheese. Spent 30 minutes pruning our two tomato plants. It's very therapeutic. Harvested another big bowl of cherry tomatoes. I've been thinking of how to better organize our spice and condiments and I found this acrylic lazy susan that should fit in the cabinets perfectly. I ordered a pack o 4 and can't wait for it to arrive tomorrow. I hemmed one of my tshirt using the hemming tape and it looks awesome! Finally I can customize the length I want. It was quite easy and took about 20 minutes. Let's see if it stays put after washing and drying it. I know he will sleep in so I went to TJ Maxx. Bought two capri tights and one maxi skirt, but I will return the capris as it bunches up behind my knee.
 Picked up a big pack of London Broil beef from Safeway (on sale for $3.99/lb) for dinner with his family tomorrow evening. It's his sister's birthday celebration.
 
-***Thursday Tomato Harvest - 14.3 oz  ***
+***Thursday Tomato Harvest - 14.3 oz***
 ![sungold tomatoes](assets/images/tomatoes.jpg)
 
 
-*Thursday London Broil Beef - 4 lbs at $3.99/lb*
+***Thursday London Broil Beef - 4 lbs at $3.99/lb***
 ![safeway london broil](assets/images/london-broil.jpg)
 
 ### Noon:
@@ -121,8 +121,8 @@ Tried to make an indian chicken curry dish and of all the cuisines I've tried, I
 *Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens*
 ![chicken-curry](assets/images/chicken-curry.jpg)
 
-#### Thursday Total For Food: $15.72
+## Thursday Total For Food: $15.72
 
 ## Friday 
-### Morning: 
-Steamed 2 froz
+### Morning:  
+Woke up at 7.45 am, had a good 7 hour sleep.
