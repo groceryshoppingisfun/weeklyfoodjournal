@@ -59,7 +59,7 @@ Quick run to Safeway to get corns (8 for $1) and cheez-it while he made dinner f
 Another pit stop at Safeway to pick up some sorbet as he was craving something cold and sweet. Safeway is a great place to shop if you buy their weekly sale items, I always take the time to go through their weekly ads and stock up on their sale items. 
 
 *Tuesday Dinner: He made baked alaskan cod*
-![baked-alaskan-code](assets/images/baked-alaskan-code.jpg)
+![baked-alaskan-code](assets/images/baked-alaskan-cod.jpg)
 
 |Safeway||
 | --- | --- |
