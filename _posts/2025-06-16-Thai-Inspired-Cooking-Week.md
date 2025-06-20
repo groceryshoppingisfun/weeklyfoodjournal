@@ -41,6 +41,10 @@ I have been following this Thai lady on YouTube called "ThaiFood Chef". I've mad
 ### Morning:
 I made omelette with our home grown cherry tomatoes and trader joe's ciabatta. Went to Winco and spent **$59.50** on bulk bin snacks, canned beans, chicken thighs and chicken wings, pork sirloin, canned oranges, limes, lemons, blackberries etc. It's enough to last us the whole week and I still have a lot of vegetables which I bought from my last asian grocery store run 2 days before the start of this food journal week. 
 
+*Tuesday Breakfast: Homegrown tomatoes omelette*
+![tomato-omelette](assets/images/tomato-omlette.jpg)
+
+
 ### Noon:
 Made a quick stir fry of snow peas, shiitake mushrooms with pork. Ate it with steamed white rice. It's very simple and easy to make but we always enjoy this kind of stir fries. 
 
@@ -65,6 +69,7 @@ Another pit stop at Safeway to pick up some sorbet as he was craving something c
 |Safeway Total|**$7.21**|
 
 ## *Tuesday Total For Food: $66.71*
+
 ## Wednesday:
 ### Morning:
 Harvested more cherry tomatoes this morning. It's been producing about a pint every three days from our two plants. Made tomato and bacon omelette with toast for breakfast before going to my bollyx zumba class. Did a quick stop at Ross which is close to the gym. I enjoy going to Ross on weekday mornings right when it opens (9 am) as it's not crowded and no wait in the self service fitting room. I love buying active wear at Ross but came out of the store empty handed today.  I came across a black bean brownie recipe on reddit and was intrigued. I made it and it was surprisingly yummy and moist. 
@@ -112,7 +117,7 @@ He did a few laundry loads of bedsheets and towels and mopped the floors. We liv
 ## Evening
 Tried to make an indian chicken curry dish and of all the cuisines I've tried, I have the lowest success with indian. I shouldn't have used our overly flavorful homegrown sungold cherry tomatoes in the curry dish and it made it tastes very fruity and looks bright yellow. It's not bad but nothing at all how it should look and taste like. Made a side salad of boiled and lightly seasoned chrystanthemum greens. It's a very windy evening so no pickleball tonight. We decided to check out a bowling alley/axe throwing place, didn't play any games but we might for next date night. Strolled around Target to get some steps in. Finished the second half of "A few good men". Jack Nicholson makes such a good villain and I really enjoyed the last 15 minutes of the courtroom drama and I want to rewatch just that part again. I love how a good movie makes me feel, it's so satisfying.
 
-*Thursday Dinner: Fruity Chicken Curry*
+*Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens*
 ![chicken-curry](assets/images/chicken-curry.jpg)
 
 
