@@ -120,6 +120,14 @@ Tried to make an indian chicken curry dish and of all the cuisines I've tried, I
 *Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens*
 ![chicken-curry](assets/images/chicken-curry.jpg)
 
+
+| *Thursday Dinner: Fruity Chicken Curry, Seasoned Chrysanthemum Greens* |
+|:--:|
+| ![chicken-curry](assets/images/chicken-curry.jpg) | 
+ 
+
+
+
 #### Thursday Total For Food: $15.72
 
 ## Friday 
