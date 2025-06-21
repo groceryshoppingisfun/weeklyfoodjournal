@@ -126,3 +126,8 @@ Tried to make an indian chicken curry dish and of all the cuisines I've tried, I
 ## Friday 
 ### Morning: 
 Woke up at 7.45 am, had a good 7 hour sleep. Harvested more tomatoes and prepped a few more side dishes for the family dinner tonight. Went to my usual Step Aerobics class, it's good cardio but also good brain exercise as the step patterns is always changing. 
+
+## Noon:
+Made a simple vegetables and beef chow mein and watched Pickleball MLP. I'm super excited we are going to travel to Dallas in a couple months just to watch Pickleball MLP at an indoor facility (no need to bake in the sun). It's on our bucket list to our favorite pickleball pros play. Did more journaling and a short power nap.
+
+
