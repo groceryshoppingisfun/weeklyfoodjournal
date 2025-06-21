@@ -134,7 +134,12 @@ Made a simple vegetables and beef chow mein and watched Pickleball MLP live on T
 ![chow mein](assets/images/chow-mein.jpg)
 
 ### Evening
-Early dinner with the family to celebrate his sister's birthday. We had a feast! A big platter of sushi rolls from a japanese restaurant, broiled flank steak, corn salad, soba salad and roasted tomatoes and a jello dessert that his mom made and he made elderberry cocktails for everyone. I am grateful to a family who lives nearby, everyone is his family is so chill and positive. We played pickleball at a public park close to his parents house. Played 6 games and the last 4 against 2 young guys were really fun. We won 3 games and lost 1 against them, I'm quite happy with my drops and resets tonight. 
-A quick stop at Safeway to pick up some frozen pizza and ice cream for a late night snack. We got home around 10 pm and even though it was so late already, we decided to work on a favorite rose bush of ours. Many of the leaves are brown and we clipped them and I used a wooden chopstick to pick the dead leaves out from inside the bush. It looks a lot more bare but healthier after the cleanup and we gave it water and fertilizer, hopefully it will bounce back. I enjoy small moments like this when we work on projects together as a couple. 
+Early dinner with the family to celebrate his sister's birthday. We had a feast! A big platter of sushi rolls from a japanese restaurant and the dishes I made - broiled flank steak, corn salad, soba salad and roasted tomatoes, and also a jello dessert that his mom made. He made a refreshing elderberry cocktail for everyone. I am grateful to a family who lives nearby, everyone is his family is so chill and positive. We played pickleball at a public park close to his parents house. Played 6 games and the last 4 against 2 young guys were really fun. We won 3 games and lost 1 against them, I'm quite happy with my drops and resets tonight. 
+A quick stop at Safeway to pick up frozen pizza and ice cream for a late night snack. We got home around 10 pm and even though it was so late already, we decided to work on a favorite rose bush of ours. Many of the leaves are brown and we clipped them and I used a wooden chopstick to pick the dead leaves out from inside the bush. It looks a lot more bare but healthier after the cleanup and we gave it water and fertilizer, hopefully it will bounce back. I enjoy small moments like this when we work on projects together as a couple. 
 
-
+|Safeway||
+| --- | --- |
+|Newman's Pizza)|$6.49|
+|Frozen Fries (28 oz)|$3.59|
+|Dreyer's Ice Cream (1.5 qt)|$2.50|
+|Safeway Total incl tax|$12.98|
