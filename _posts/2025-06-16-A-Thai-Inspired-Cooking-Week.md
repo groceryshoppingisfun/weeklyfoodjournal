@@ -124,7 +124,7 @@ Tried to make an indian chicken curry dish and of all the cuisines I've tried, I
 ### Thursday Total For Food: $15.72
 
 ## Friday 
-### Morning: 
+### Morning:  
 Woke up at 7.45 am, had a good 7 hour sleep. Harvested more tomatoes and prepped a few more side dishes for the family dinner tonight. Went to my usual Step Aerobics class, it's good cardio but also good brain exercise as the step patterns is always changing. 
 
 ### Noon:
@@ -143,3 +143,45 @@ A quick stop at Safeway to pick up frozen pizza and ice cream for a late night s
 |Frozen Fries (28 oz)|$3.59|
 |Dreyer's Ice Cream (1.5 qt)|$2.50|
 |Safeway Total incl tax|$12.98|
+
+Safeway: $5.37 (what is it?)
+
+
+### Friday Total For Food: $12.98
+
+## Saturday
+### Morning:   
+Leftover chow mein for breakfast then I did a yogalite class this morning, very relaxing. I am grateful to have access to a nice sports club so close to home. The members tend to be middle aged, friendly, respectful and nice people, my kind of crowd. 
+
+
+### Noon:
+He ate the rest of the chow mein just before I got home and wasn't hungry so I made myself some arepas with avocado, our own cherry tomatoes and leftover flank steak. It was super delicious.
+
+*Saturday Lunch: Flank Steak, Avocado, Cherry TOmatoes, Salsa, Cheese on arepa*
+![steak arepa](assets/images/steak-arepa.jpg)
+
+### Noon:
+I reorganized our spices and cooking condiments cabinets using a 4 pack acrylic lazy susans I ordered from Amazon. Only took 15 minutes but I love how it looks and works now. It's so easy to just spin it and look for what I need without having to play tetris. Another 2 hour nap.
+
+### Evening
+I made an arepa pizza, which is just one super sized arepa. This time I used mostly grilled shrimp, and some flank steak, cherry tomatoes, avocado, gouda cheese and salsa. He loved it. 
+We drilled pickleball for an hour at our sports club after dinner then went over to the public park pickleball courts knowing it's going to be supercrowded. We went there mainly to socialize with our pickleball friends and played just 2 games.
+A late night dessert of Rocky Road ice cream with some cut up black bean brownie I made a few days ago, I love this combination!
+
+### Saturday Total For Food: $0
+
+## Sunday
+### Morning:   
+Leftover chow mein for breakfast then I did a yogalite class this morning, very relaxing. I am grateful to have access to a nice sports club so close to home. The members tend to be middle aged, friendly, respectful and nice people, my kind of crowd. 
+
+### Noon:
+
+*Saturday Lunch: Flank Steak, Avocado, Cherry TOmatoes, Salsa, Cheese on arepa*
+![steak arepa](assets/images/steak-arepa.jpg)
+
+### Noon:
+
+### Evening
+
+Costco and Otto , maharoba
+
