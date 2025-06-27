@@ -144,15 +144,11 @@ A quick stop at Safeway to pick up frozen pizza and ice cream for a late night s
 |Dreyer's Ice Cream (1.5 qt)|$2.50|
 |Safeway Total incl tax|$12.98|
 
-Safeway: $5.37 (what is it?)
-
-
 ### Friday Total For Food: $12.98
 
 ## Saturday
 ### Morning:   
 Leftover chow mein for breakfast then I did a yogalite class this morning, very relaxing. I am grateful to have access to a nice sports club so close to home. The members tend to be middle aged, friendly, respectful and nice people, my kind of crowd. 
-
 
 ### Noon:
 He ate the rest of the chow mein just before I got home and wasn't hungry so I made myself some arepas with avocado, our own cherry tomatoes and leftover flank steak. It was super delicious.
@@ -160,7 +156,7 @@ He ate the rest of the chow mein just before I got home and wasn't hungry so I m
 *Saturday Lunch: Flank Steak, Avocado, Cherry TOmatoes, Salsa, Cheese on arepa*
 ![steak arepa](assets/images/steak-arepa.jpg)
 
-### Noon:
+### Afternoon:
 I reorganized our spices and cooking condiments cabinets using a 4 pack acrylic lazy susans I ordered from Amazon. Only took 15 minutes but I love how it looks and works now. It's so easy to just spin it and look for what I need without having to play tetris. Another 2 hour nap.
 
 ### Evening
@@ -175,8 +171,7 @@ A late night dessert of Rocky Road ice cream with some cut up black bean brownie
 Leftover chow mein for breakfast then I did a yogalite class this morning, very relaxing. I am grateful to have access to a nice sports club so close to home. The members tend to be middle aged, friendly, respectful and nice people, my kind of crowd. 
 
 ### Noon:
-
-*Saturday Lunch: Flank Steak, Avocado, Cherry TOmatoes, Salsa, Cheese on arepa*
+*Sunday Lunch: Flank Steak, Avocado, Cherry TOmatoes, Salsa, Cheese on arepa*
 ![steak arepa](assets/images/steak-arepa.jpg)
 
 ### Noon:
